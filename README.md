@@ -1,6 +1,6 @@
 ## .⋆♱ "𝓦𝓮𝓵𝓬𝓸𝓶𝓮..."ㅤㅤㅤ
 <!--
-**dcrknight/dcrknight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**betrayalinlove/betrayalinlove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
